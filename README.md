@@ -1,4 +1,5 @@
-## Hi there, I'm Sudeep Joel 👋
+## Hi there 👋
+![Black and Red Gradient Professional LinkedIn Banner](https://user-images.githubusercontent.com/29436770/236292581-ae7b5752-00f2-4b5e-9092-ef0f18522743.png)
 
 ### About Me
 
